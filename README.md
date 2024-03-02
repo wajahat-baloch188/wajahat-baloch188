@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **wajahatbaloch2002@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/Wajahat-Baloch-Resume](https://tinyurl.com/Wajahat-Baloch-Resume)
+- 📄 Know about my experiences [https://tinyurl.com/Wajahat-Resume](https://tinyurl.com/Wajahat-Resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
